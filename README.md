@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @putrishaqilaa
+- 👋 Hi, I’m putri shaqila
 - 🌱 I’m currently learning electronics engineering in yogyakarta state university
 - 📫 How to reach me 
- -  instagram : @putrishaqilaa
  -  email : putrishaqila88@gmail.com
